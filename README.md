@@ -22,5 +22,5 @@ Feel free to reach out if you want to:
 - Discuss tech, books, or motorcycles 🚴‍♂️.
 - Collaborate on a cool project 💻.
 
-📧 Email: [kolton.maser@example.com](mailto:kolton.maser@example.com)  
-💼 LinkedIn: [linkedin.com/in/kolton-maser](https://linkedin.com/in/kolton-maser)
+📧 Email: [koltonmaser@gmail.com](mailto:koltonmaser@gmail.com)  
+💼 LinkedIn: [linkedin.com/in/kolton-maser]([https://linkedin.com/in/kolton-maser](https://www.linkedin.com/in/kolton-maser-94a10a257/))
